@@ -1,2 +1,0 @@
-# colaborativo
-NOMBRES:
